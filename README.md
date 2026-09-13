@@ -1,4 +1,4 @@
-# Hi, I'm Hoyin 👋
+# Hi, I'm Gilbert 👋
 
 🎓 Digital Media Development Student @ York University
 
