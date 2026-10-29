@@ -2,7 +2,7 @@
 
 🎓 Digital Media Development Student @ York University
 
-💻 Aspiring Software Developer / Solution Engineer / UXUI Engineer
+💻 Software Developer / Full Stack Developer / UXUI Engineer
 
 ## 🚀 About Me
 
